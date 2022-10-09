@@ -1,0 +1,2 @@
+# funny-luca
+Nftart work
